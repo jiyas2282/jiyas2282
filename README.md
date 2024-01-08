@@ -1,3 +1,9 @@
+Shaanxi Waist Drum
+Traditional folk gongs and drums
+The Pi@jiyas of China
+......
+https://github.com/jiyas2282/jiyas2282/assets/147234485/25223392-2bfa-4297-b8ac-71c0e92c0ecb
+
 - 👋 Hi, I’m @jiyas2282
 - 👀 I’m a student
 - 🌱 I’m currently learning ...
